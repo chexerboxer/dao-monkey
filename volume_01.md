@@ -223,7 +223,7 @@ Luo Binhan was a bit dazed, so he changed the subject: "Were those women looking
 
 The 0312 Jing Huang mentioned was another strange man Luo Binhan had met a few months ago. The man claimed his surname was Fu Ke and his given name Ke, working as a programmer in a tech company in the neighboring city. His most striking feature was a bald head as glaring as a monk's.
 
-Like Jing Huang, Fu ke had disappeared three months ago, right around the time Luo Binhan's friend Zhou Yu was discharged from the hospital. But at the time, Luo Binhan wasn't surprised; he knew both Jing Huang and Fu ke had secrets different from ordinary people.
+Like Jing Huang, Fu Ke had disappeared three months ago, right around the time Luo Binhan's friend Zhou Yu was discharged from the hospital. But at the time, Luo Binhan wasn't surprised; he knew both Jing Huang and Fu Ke had secrets different from ordinary people.
 
 That was—
 
