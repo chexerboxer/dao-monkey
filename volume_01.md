@@ -553,7 +553,7 @@ Luo Binhan pulled the remaining stem from his mouth, cupped his hands to Aralega
 
 "No, you don't need to do anything," Aralega replied. "The Silent will ensure your safety during this time."
 
-Luo Binhan understood. He was nothing more than an interstellar tourist souvenir plant that Jing Huang had casually grabbed from Blue Star.
+Luo Binhan understood. He was nothing more than an interstellar souvenir plant that Jing Huang had casually grabbed from a Blue planet.
 
 "How long until I can go back?"
 
@@ -587,7 +587,7 @@ Luo Binhan didn't understand what she meant, but he wasn't very concerned. All h
 
 "Reproductive information exchange. For you, sex is enough," Aralega answered without evasion. "That way, the information we have can be fully shared. Want to give it a try?"
 
-"Oh. No thank you," said Luo Binhan. "Then why aren't you called the Welfare clan?" (In chinese it's more like fan service, the two words are similar in Chinese)
+"Oh. No thank you," said Luo Binhan. "Then why aren't you called the loving clan?"
 
 "'Gospel' is the matching word you chose yourself."
 
