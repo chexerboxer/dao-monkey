@@ -87,7 +87,7 @@ He stared out the window in surprise. Luo Binhan followed his gaze and saw a you
 
 Catching a glimpse of that familiar back, Luo Binhan almost jumped out of his seat.
 
-"Master, stop!"
+"Mister, stop!"
 
 The bewildered driver pulled over. Luo Binhan paid as fast as he could, then grabbed his suitcase and rushed out.
 
