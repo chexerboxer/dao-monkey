@@ -657,7 +657,9 @@ Luo Binhan was a bit uncertain about the other's depth. He asked cautiously, "Ar
 
 Momoro blinked innocently and perplexedly. He asked, "Mr. Luo, what does 'collaborator' mean?"
 
-"Oh, it's when the imperial army comes and you point out where the village is." (This part I was thinking of just removing due to too much cultural context needed. It's refering to Chinese traitors during the Japanese invasion of China. It's refering to Everlight clan or Ultraman attracting monsters to planets, but Momoro also doesn't get it.)
+"Oh, it's when the imperial army comes and you point out where the village is.*" 
+
+(TN: This part I was thinking of just removing due to too much cultural context needed. It's refering to Chinese traitors during the Japanese invasion of China. It's refering to Everlight clan or Ultraman attracting monsters to planets, but Momoro also doesn't get it.)
 
 Momoro said happily, "That's great! Next time a monster appears in Mr. Luo's homeland, please be my collaborator, won't you?"
 
@@ -687,7 +689,9 @@ Momoro planted his fisted hands on his hips and nodded with righteous vigor.
 
 "Although the summoning only lasts an average of three minutes... that's enough to handle the danger!"
 
-"Hmm... Hmm?"
+"Hmm... Hmm?*"
+
+(TN: Seach Ultraman if you don't get the reference)
 
 Luo Binhan snapped back to reality. Calmly, he looked the young man over from head to toe, then from toe to head.
 
@@ -769,7 +773,7 @@ Jing Huang was nowhere to be seen. In the hall sat only Aralega and a little gir
 Luo Binhan elbowed Momoro: "You people hire child labor here?"
 
 "Senior Day Eight* came with Mr. Xuanhong; she boarded earlier than I did." Momoro said innocently.
-(TN: Her name is basically 8th day of the weird, something impossible in a 7 day week.)
+(TN: Her name is basically 8th day of the week)
 
 "Her name is Day Eight?"
 
