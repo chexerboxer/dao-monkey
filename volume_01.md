@@ -551,7 +551,7 @@ Aralega smiled without speaking. So Luo Binhan asked again: "How do you usually 
 
 Luo Binhan pulled the remaining stem from his mouth, cupped his hands to Aralega, and said: "I'm impressed, impressed. So you are the interstellar Mafia? Am I joining as a grunt?"
 
-"No, you don't need to do anything," Aralega replied. "The Silent will protect your safety during this time."
+"No, you don't need to do anything," Aralega replied. "The Silent will ensure your safety during this time."
 
 Luo Binhan understood. He was nothing more than an interstellar tourist souvenir plant that Jing Huang had casually grabbed from Blue Star.
 
