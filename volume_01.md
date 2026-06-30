@@ -125,7 +125,7 @@ The nun pressed her hands together in front of her chest, walked gracefully to h
 
 He looked at his bound hands and feet and started screaming in terror. When the nun began to undress, he howled even more desperately.
 
-"Let's talk this out! Don't use your looks to commit violence!"
+"Let's talk this out! Don't use your looks to commit crimes!"
 
 The nun shed the outer black, heavy fabric. Underneath, her body was curvaceous, tempting beyond words. But over her jade-like skin was something else—a strange tight outfit made of thin chains, leather, and metal plates. A light armor that only protected the vital areas.
 
