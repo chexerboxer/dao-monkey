@@ -501,7 +501,7 @@ The soft chair floated up again, returning to Aralega, who was leisurely holding
 
 Luo Binhan nodded nervously.
 
-Aralega pulled a small white flower from the vase holding flowers and handed it to Luo Binhan. Seeing this, Luo Binhan politely declined: "Forget it, I don't deserve to live on the same planet as Brother Ma..."
+Aralega pulled a small white flower from the vase holding flowers and handed it to Luo Binhan. Seeing this, Luo Binhan politely declined: "Forget it, I don't deserve to live on the same planet as horses..."
 
 "This is a milk-flavored candy made by the Durand people," said Aralega.
 
