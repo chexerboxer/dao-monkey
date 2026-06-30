@@ -127,7 +127,7 @@ He looked at his bound hands and feet and started screaming in terror. When the 
 
 The nun shed the outer black, heavy fabric. Underneath, her body was curvaceous, tempting beyond words. But over her jade-like skin was something else—a strange tight outfit made of thin chains, leather, and metal plates. A light armor that only protected the vital areas.
 
-She reached behind her back. Luo Binhan thought her waist was so slender it could be encircled by a single hand, that beautiful body tightly wrapped in the tight outfit. Yet from somewhere she produced something like a stun gun. She pressed it against Luo Binhan's throat with a click and asked, "Where is the Degradation Hunter?"
+She reached behind her back. Luo Binhan thought her waist was so slender it could be encircled by a single hand, that beautiful body tightly wrapped in the tight outfit. Yet from somewhere she produced something like a stun gun. She pressed it against Luo Binhan's throat with a click and asked, "Where is the Degradation Hound?"
 
 ## Chapter 2
 
@@ -135,7 +135,7 @@ Luo Binhan was completely stunned. He had no idea what she was talking about. Bu
 
 The beautiful nun pressed the tip of the stun gun harder against his throat.
 
-"Where is the Degradation Hunter!?"
+"Where is the Degradation Hound!?"
 
 Luo Binhan felt the cold pressure of metal against his throat, making it hard to breathe. He began to miss the dog he used to have, but that dog was long gone, and where it was now he couldn't say.
 
