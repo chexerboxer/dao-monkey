@@ -401,7 +401,7 @@ Jing Huang glanced at the symbol and then said with certainty: "You steer the sh
 
 The purple-haired '∈' vanished on the spot with a plaintive look. Seeing this, Luo Binhan directly grabbed Jing Huang by the collar: "...Is he a person or a ghost?"
 
-Jing Huang pried his hand off: "Information aggregate mind split stream."
+Jing Huang pried his hand off: "Information aggregate mind branch stream."
 
 "Speak human language!"
 
