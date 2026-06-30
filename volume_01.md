@@ -451,7 +451,7 @@ Luo Binhan gave up thinking. He asked: "What exactly do you people want?"
 
 "Why do I need protection?"
 
-Aralega began dipping the flowers into the drinks. "Because you've gotten involved with the captain. The captain has a bunch of enemies who are skilled at assassination. They kill anyone who gets involved with him."
+Aralega began dipping the flowers into the drinks. "Because you've gotten involved with the captain. The captain has many enemies who are skilled at assassination. They kill anyone who gets involved with him."
 
 Luo Binhan nodded calmly, leaned over to the side of the chair, and shouted down with a middle finger: "Jing Huang, I curse on your ancestors!"
 
