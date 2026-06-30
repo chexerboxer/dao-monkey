@@ -73,7 +73,9 @@ The driver chuckled. "I follow the Dao."
 
 Luo Binhan realized his mistake and quickly said, "My apologies, my apologies. Infinite Buddha of the Dao."
 
-"That's 'Infinite Blessings of the Dao.' If you want Buddha's hand, buy it yourself. Hey, young man, do you believe in anything?"
+"That's 'Infinite Blessings of the Dao.'* If you want Buddha's hand, buy it yourself. Hey, young man, do you believe in anything?"
+
+(TN: It's a greeting used by two Daoist, blessing each other for pursuing the Dao)
 
 "Yes, I follow the Flying Spaghetti Monster."
 
