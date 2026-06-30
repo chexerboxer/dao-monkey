@@ -4200,7 +4200,7 @@ Luo Binhan calmly closed his jaw. "This bottle wasn't bought on the street, was 
 
 At that moment, Jing Huang finally emerged from the woods. Everyone fell silent, staring intently at him. His expression showed nothing unusual.
 
-"Yalai," he said, "let's go."
+"Ara," he said, "let's go."
 
 He walked toward The Silent on his own. Luo Binhan grabbed him and asked, "What did you talk about with that hound?"
 
