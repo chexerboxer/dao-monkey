@@ -850,12 +850,19 @@ Luo Binhan felt his head spinning. To relieve the feeling, he sat on a soft chai
 
 To the right of the water bottle was a bookshelf. Luo Binhan glanced casually and saw a row of book titles in the middle. When he saw the words, a translation automatically popped into his head:
 
+
 *The Crying Durand: The Disappearance of the Empire's Sugar Tower*
+
 *Fish and Birds—A Comparison of the Folklorization of Two Types Combination Phenomena in Various Star Realms*
+
 *A Concise History of Confederation Aviation—A Holistic Study Based on the Maternal Civilization of the Top Ten at the Summit and Predictions of Future Development*
+
 *Primitives Who Rafted to the Moon: Stone Age Space Monkeys on a Rocky Planet*
+
 *How to Keep Calm and Die in a Class II Civilization World*
+
 *White Meow Meow Teaches You to Travel Through the Overturned Star*
+
 
 Luo Binhan stared at these titles for a while, then vigorously rubbed his head.
 
