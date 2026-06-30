@@ -59,7 +59,7 @@ At this moment, the cathedral entrance was piled with fresh bouquets of roses, a
 
 Luo Binhan was captivated by this surreal scene. Even the taxi driver was mesmerized. He unconsciously slowed down, trying to steal a few more seconds of this mysterious scene.
 
-"Master, what do you think monks and nuns can talk about?" Luo Binhan asked, eyes fixed.
+"Mister, what do you think monks and nuns can talk about?" Luo Binhan asked, eyes fixed.
 
 The taxi driver was insightful. Wiping the steering wheel, he said decisively, "You'd have to ask what attitude their top brass has."
 
