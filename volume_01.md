@@ -1428,7 +1428,7 @@ Jing Huang kicked him again: "Silent your mom. Cut the crap. Where's the cargo? 
 
 "Mr. Xuanhong, you can't!" Momoro said urgently and sincerely. "Please think carefully: the universe we live in is so vast and profound, stars shine, decay, are born, and die, cycling endlessly between life and death. What a lonely yet gentle world! Life is as lonely as stars, every life deserves cherishing..."
 
-"Cherish your mom," Jing Huang said. "Last time you just randomly shot light and blew up three natural satellites. If we hadn't run fast, we'd be inside. You damn thing always breaking the rules."
+"Cherish your mom," Jing Huang said. "Last time you just randomly shot light and blew up three natural satellites. If we hadn't run fast, we'd be behind the bars. You damn thing always breaking the rules."
 
 He then angrily kicked the Fishbone's owner again.
 
