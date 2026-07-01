@@ -1613,7 +1613,9 @@ He seemed unwilling to elaborate, so Luo Binhan changed the subject. "What happe
 
 "But don't go chanting 'Namo Merciful and Compassionate Ultraman Bodhisattva'!"
 
-"Sadhu," Momoro said happily. "Mr. Luo, do you understand Zen as well? Even if your school differs from Master Sanglian's, it's no problem. You are welcome to discuss with me!"
+"Sadhu*," Momoro said happily. "Mr. Luo, do you understand Zen as well? Even if your school differs from Master Sanglian's, it's no problem. You are welcome to discuss with me!"
+
+(TN: Meaning excellent in this context)
 
 "Don't come near me!" Luo Binhan roared.
 
@@ -1633,21 +1635,21 @@ Luo Binhan grew even more curious. He didn't dare speak to Momoro, whose eyes we
 
 "Huh?"
 
-"He's a special-grade researcher at the Central City Supreme Academy, a student personally trained by Prometheus. Ever since he Testamentalized himself, he's been shaving his head and conning people every day." Jing Huang spat. "What Zen does he believe? He's the one who improved the Class C, Type II planet-killing cannon!"
+"He's a special-grade researcher at the Central City Supreme Academy, a student personally trained by Prometheus. Ever since he Testamentalized himself, he's been shaving his head and conning people every day." Jing Huang spat. "What Zen does he believe? He's the one who improved the Class C, Type II Star Annhilator cannon!"
 
 Luo Binhan felt dizzy. He chewed on a flower and said, "Doesn't he... preach Zen?"
 
-"Because he thinks religion is the most effective way to spread moralism and advanced culture in backward primitive civilization areas," Jing Huang said, his face reddening. "What does he know about Zen? He just packages the 'Confederation Humanitarian Development Convention Detailed Rules' as scriptures and preaches them everywhere, and he ended up the most famous monk in the entire Confederation. True Zen practitioners among the Testamental school are sick of him."
+"Because he thinks religion is the most effective way to spread moralism and advanced culture in backward primitive civilization areas," Jing Huang said, his face reddening. "What does he know about Zen? He just packages the 'Confederation Humanitarian Development Convention Detailed Rules' as scriptures and preaches them everywhere, and he ended up the most famous monk in the entire Confederation. True Zen practitioners among the Testamental side are sick of him."
 
 "Isn't that stealing their thunder? Doesn't anyone confront him?"
 
-"He can build planet-killing cannons," Jing Huang said flatly.
+"He can build star-killing cannons," Jing Huang said flatly.
 
 Over the next few days, they sailed past several red giants, cut straight through a nebula, and traced a complex, enormous arc near a binary star system to accelerate. Along the way, they encountered three ships. The first looked like a pyramid; it was supposedly a lost civilian vessel, crowded with the little green men Luo Binhan often saw in sci-fi movies. Aralega adjusted three frequencies before finally reaching them. They said they had crossed a nebula, its internal heat had damaged their navigation system, and they had drifted here with supplies running critically low. Jing Huang disdainfully tossed them a navigation device.
 
 The other two ships belonged to an interstellar slave trade organization and space pirates, respectively. Momoro lovingly preached the Ten Virtues to them.
 
-After watching the last batch pass out on the spot from Momoro's chanting, Luo Binhan fell into thought. He couldn't understand how the universe had sunk so low that among four bandits, only one was a decent person.
+After watching the last batch pass out on the spot from Momoro's chanting, Luo Binhan fell into thought. He couldn't understand how the universe had sunk so low that among four travelers, only one was a decent person.
 
 "It's the route, Mr. Luo," Momoro explained optimistically. "This isn't an official route designated by the Farless domain and the Confederation, so ordinary ships don't risk it. Only illegal ships use this path to enter Confederation territory."
 
@@ -1669,7 +1671,7 @@ Luo Binhan glared at him darkly.
 
 "What?" Jing Huang said. "Isn't a ship meant for sailing the sea?"
 
-He grumpily grabbed the book "Sailing the Waters" from the shelf, opened the cover, and threw it at Luo Binhan. The pages quickly condensed into Chinese before his eyes.
+He grumpily grabbed the book "Where Does Water Go" from the shelf, opened the cover, and threw it at Luo Binhan. The pages quickly condensed into Chinese before his eyes.
 
 "Ah, but a person's vision should exceed their ability," the book began. "Otherwise, why have heaven?"
 
@@ -1677,13 +1679,13 @@ He grumpily grabbed the book "Sailing the Waters" from the shelf, opened the cov
 
 Space: the final frontier.
 
-Boundless, cold, and silent. The dark void governed by radiation and gravity, spherical stars of superheated plasma. Dark matter. Black holes. Cosmic radiation maps... This is our universe. Based on hypotheses, deductions, empirical evidence, and repeatable experiments, we have constructed a story of its entire structure: precise and elegant, complex but harmonious. From the relativistic equations of light speed to warp drive principles, from gravitational field observations to wormhole construction, from string theory to the Theory of Everything... We see, we come, we conquer. And we will conquer.
+Boundless, cold, and silent. The dark void governed by radiation and gravity, spherical stars of superheated plasma. Dark matter. Black holes. Cosmic radiation maps... This is our universe. Based on hypotheses, deductions, empirical evidence, and repeatable experiments, we have constructed a story of its entire structure: precise and elegant, complex but harmonious. From the relativistic equations of light speed to warp drive principles, from gravitational field observations to wormhole construction, from string theory to the Theory of Everything... We saw, we came, we conquered. And we will conquer.
 
 Yes, how much we once believed in this world, this universe! A world operating stably and balanced under understandable, solvable, and verifiable physical laws...
 
 But, dear friend, when you sail into the space of the Testamental, they are all wrong. Forget them.
 
-From the Sea of Pyros to the Aether tide, from the Living Fire atmosphere to the infinite heavens swept by jets, from areas of void filled with "qi" and no gravity to the boundless azure void extending upward from a "flat earth"... These are among the worlds we will face. And the braver among us have seen even more. For example, in some "worlds," the void with its clear distinction from the sky is so safe and stable that you can leap upward from a mountaintop and jump straight out of the "atmosphere"—I mean a bubble-like membrane separating breathable air from airless void—and fall into a cosmos filled with spiritual fields. With "magic" as the medium and carrier, your ship can float and sail on its waves, orbiting the globe that rolls and spins within.
+From the Sea of Pyros to the Aether tide, from the Living Fire atmosphere to the infinite heavens swept by jets, from areas of void filled with "qi" and no gravity to the boundless azure void extending upward from a "flat earth"... These are among the worlds we will face. And the braver among us have seen even more. For example, in some "worlds," the void with its clear distinction from the sky is so safe and stable that you can leap upward from a mountaintop and jump straight out of the "atmosphere"—referring a bubble-like membrane separating breathable air from airless void—and fall into a cosmos filled with spiritual fields. With "magic" as the medium and carrier, your ship can float and sail on its waves, orbiting the globe that rolls and spins within.
 
 In these worlds, stars are more than spiritual beacons. They can be living, dead, a "soul," a "deity," a lantern, torch, eyehole, lighthouse, gem set in the sky wall, the eye of a creature.
 
@@ -1707,7 +1709,7 @@ Luo Binhan stopped reading at the end of this section. He closed the book and to
 
 Luo Binhan wanted to discuss it further, but Jing Huang suddenly jumped out of his chair. "Aralega, wait a bit before entering the sea," he said. "I need to buy something at the port."
 
-A few hours later, the Silent landed on solid ground. Aralega didn't activate external visualization during the process, so Luo Binhan didn't know what world awaited him before disembarking.
+A few hours later, the Silent landed on solid ground. Aralega didn't activate external visualization during the process, so Luo Binhan didn't know what world await him before disembarking.
 
 At the hatch, he instinctively reached for a protective suit, but Aralega stopped him.
 
@@ -1799,7 +1801,7 @@ But this was not that. The huge, burning hole was neither cooled and solidified 
 
 Luo Binhan stared in awe. The girl laughed beside him again.
 
-"That's the real gate to the sea," she said. "You're definitely a newbie."
+"That's the real gate to the sea," she said. "You're definitely new here."
 
 Luo Binhan looked at her blankly, this time noticing more details. Her ink-blue hair looked stiff, like insect antennae; her milky skin had small, dense spots; her face was narrower than a normal human's, making her eyes look especially large.
 
@@ -1859,7 +1861,7 @@ Aralega rose gracefully and left the round hall with him. Luo Binhan opened the 
 
 One was a small circular lens with a faint red tint, set in a pitch-black metal frame. On the outside of the frame were several rice-grain-sized colored gem decorations.
 
-"Ah, a Seven-Colored Myriad-Li Lens," said Momoro, who was watching. "This is well-suited to you, Mr. Luo."
+"Ah, a Seven-Colored Myriad Lens," said Momoro, who was watching. "This is well-suited to you, Mr. Luo."
 
 Luo Binhan held the lens up to his eye and tried it, but didn't notice any difference. So Momoro asked ∈ to turn on the visualization in the round hall, then told Luo Binhan to look into the distance.
 
@@ -2477,7 +2479,7 @@ The pitch-black, mirror-smooth sky began to glow, presenting the illusion of a r
 
 But the fire flower under the bright sun began to shrink.
 
-At first Luo Binhan couldn't see anything, until he put the Seven-Colored Book Telescope to his eye and noticed tiny green dots floating in the flames. They were small and twinkling, like stars made of jade and emerald.
+At first Luo Binhan couldn't see anything, until he put the Seven-Colored Myriad Lens to his eye and noticed tiny green dots floating in the flames. They were small and twinkling, like stars made of jade and emerald.
 
 "Oh," he said. That emerald light seemed familiar, calming him instantly.
 
