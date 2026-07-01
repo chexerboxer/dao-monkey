@@ -1436,7 +1436,7 @@ The owner groaned miserably. The outrageous behavior made Luo Binhan unable to s
 
 "Brother Jing, Brother Jing, that's enough," he said, patting Jing Huang's shoulder. "Ashes can be scattered, but let's not bring up mothers. These days, who isn't a tough orphan trying to make it? Let it go, let it go. Feuds in the underworld don't involve moms."
 
-Jing Huang impatiently knocked his hand away: "Mom my ass. Qinsang have no mothers; they reproduce uniformly and hand offspring to the military. Don't block my interrogation."
+Jing Huang impatiently knocked his hand away: "Mom my ass. Qinsang have no mothers; they reproduce assexually and hand offspring to the military. Don't block my interrogation."
 
 "No, no," Luo Binhan said. "Let me handle it; I'm best at this."
 
