@@ -985,7 +985,7 @@ Luo Binhan noticed a few strands of black hair hanging from under her hood, and 
 
 "I'm the warehouse manager," the girl replied.
 
-"You walk pretty lightly, huh," Luo Binhan said. "Where did you learn that lightness skill, lady knight?"
+"You walk pretty lightly, huh," Luo Binhan said. "Are you a kunoichi by any chance?"
 
 The corners of the girl's mouth lifted into a complicated smile. She suddenly threw back her hood, revealing a slightly haggard face. Her forehead was high, her eyes a bit sunken, giving an impression of melancholy.
 
