@@ -1877,7 +1877,7 @@ The faintly red lens turned green. Curious, Luo Binhan put it back to his eye an
 
 The birds' flight was still clear, but this time a line of text floated up in the lens.
 
-"Quluo Gull, Rational side, Aves, Charadriiformes, Laridae, Larus. Union code μ. Adult length approx. 30cm, feeds on marine fish. Low-danger organism."
+"Quluo Gull, Rational side, Aves, Charadriiformes, Laridae, Larus. Confederation code μ4920301. Adult length approx. 30cm, feeds on marine fish. Low-danger organism."
 
 Luo Binhan was stunned. The bird behind the lens flew out of view, and the text disappeared.
 
@@ -1887,7 +1887,7 @@ He turned to Momoro, and text appeared again in the lens.
 
 "Fuck," Luo Binhan said.
 
-He took the lens off and held it in his palm. Momoro happily told him that this was a simplified guidebook for travel, already adjusted to Blue Star measurement.
+He took the lens off and held it in his palm. Momoro happily told him that this was a simplified guidebook for travel, already adjusted to Earth measurement.
 
 "Red is ordinary, orange is atmosphere composition, yellow is elements, green is animals, cyan is plants, blue is minerals, purple is customized items. Because of capacity limits it only has the simplest descriptions, but you can download new content after connecting to a terminal."
 
@@ -1907,7 +1907,7 @@ Luo Binhan followed his instructions and looked at the readings. At the moment, 
 
 "Why is there a negative number?" he asked in surprise.
 
-"It means the degree of Rational here is higher than in your home, Mr. Luo," Momoro said, studying the dials and scratching his head, seemingly puzzled. "The simplified version is indeed rough, no more detailed information. Anyway, this stellar layer isn't much different from your home. If the deviation values are very large, please be careful, especially the last two data."
+"It means the degree of Rational here is higher than in your home, Mr. Luo," Momoro said, studying the dials and scratching his head, seemingly puzzled. "The simplified version is indeed rough, no more detailed information. Anyway, this stellar layer isn't much different from your home. If the deviation values are very large, please be careful, especially the last two dials."
 
 Though not entirely understanding, Luo Binhan hung it around his neck, then picked up the last item from the bag. It was a glass cat's eye marble with an ordinary appearance. The whole body was faintly blue, with a flame-bright pattern inside.
 
@@ -1953,7 +1953,7 @@ Momoro looked reluctant. "Mr. Xuanhong, though I'm happy to help, if I show my f
 
 Though he looked unwilling, Momoro eventually followed Jing Huang out. Having nothing to do, Luo Binhan tailed them. They walked out of the round hall, up a spiral staircase Luo Binhan had never seen before, and onto a spacious deck.
 
-Luo Binhan looked down at the waterproof-painted wooden floor; he turned around and saw the glass-windowed pilothouse and a classical wooden steering wheel. Aralega stood there, gazing into the distance.
+Luo Binhan looked down at the waterproof-painted wooden floor; he turned around and saw the glass-windowed pilothouse and a classical wooden helm. Aralega stood there, gazing into the distance.
 
 He was standing on a real, rather ancient, huge sailing ship.
 
@@ -1969,11 +1969,11 @@ Jing Huang looked at him blankly: "What ship?"
 
 "Your ship! The Silent!" Luo Binhan gestured in the air. "How did it disappear when we came out?"
 
-"Isn't it right under your feet?" Jing Huang shook off his hand. "It just changed form when we went out to sea. Don't scream like a ghost."
+"Isn't it right under your feet?" Jing Huang shook off his hand. "It just changed form when we went out to sea. Don't scream like an idiot."
 
 Luo Binhan stared around. He couldn't see any connection between the deck of the giant ship he was currently on and the Silent he had witnessed earlier.
 
-"You've traveled back to the Middle Ages in a dream. How did it change?"
+"Are we in the medieval ages now? How did it change?"
 
 "The parts have been at the bottom of the ship all along. Now they're just reassembling. Hey, time to work."
 
@@ -1995,17 +1995,17 @@ Luo Binhan didn't like hearing that. He was nearly a head taller than Jing Huang
 
 "Momoro?" he asked tentatively.
 
-The silver giant tilted its head slightly, and the luster in its eyes changed. Luo Binhan somehow understood that it was laughing.
+The silver giant tilted its head slightly, and the luster in its eyes changed. Luo Binhan somehow understood that it was a smile.
 
-"It's me, Mr. Luo," Momoro's voice replied happily. The sound didn't enter through his ears but came as an echo in his heart.
+"It's me, Mr. Luo," Momoro's voice replied happily. The sound didn't enter through his ears but came as an echo in his mind.
 
 Luo Binhan felt both incredulous and somehow expected. He looked up at the giant overlooking the wooden ship. Backlit, he couldn't see details, only sensed its very human-like silhouette. Waist, arms, legs—every part was as symmetrically muscular as an ancient Greek sculpture.
 
-"...Looks like a spandex-wearing freak," he couldn't help but say.
+"...Reminds me of spandex fetishism," he couldn't help but say.
 
 The smile vanished from the giant's face immediately, and even the eyes that shone like searchlights dimmed a little.
 
-"Really? ... The seniors at school said my appearance was very easy for hominids to accept," Momoro said dejectedly in his heart. "Does Mr. Luo think it's terrible?"
+"Really? ... The seniors at school said my appearance was very easy for pan-sapiens to accept," Momoro said dejectedly in his mind. "Does Mr. Luo think it's terrible?"
 
 Luo Binhan felt a pang of guilt.
 
