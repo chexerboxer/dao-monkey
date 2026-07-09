@@ -2065,11 +2065,11 @@ Luo Binhan looked up at the silver giant, whose features were as friendly as a t
 
 "Yeah."
 
-"I thought you only did dark dealings?"
+"I thought you only do illegal things to illegal people?"
 
 Jing Huang rested his head on the railing irritably, his gaze drifting toward the deep, clear sky.
 
-"Going through the process is too annoying," he said sulkily.
+"Going through the standard procedure is too too much work," he said sulkily.
 
 "You're giving up on yourself!"
 
@@ -2077,7 +2077,7 @@ Luo Binhan yelled. Immediately, the entire ship shook violently. He hugged the r
 
 "Momoro, what the hell are you doing?" he shouted.
 
-A gentle voice answered in his heart: "Going out to sea, Mr. Luo. If we don't go now, the security will mobilize."
+A gentle voice answered in his heart: "Going out to sea, Mr. Luo. If we don't go now, the security will be ready soon."
 
 "And going out to sea means being carried by you?"
 
@@ -2097,12 +2097,12 @@ On the promenade, the swarm of silver flying machines began to emit piercing noi
 
 Chapter 18: Sailing in the Dream of Blazing Fire (Part 3)
 
-Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Travelling on Water*, it was written as follows:
+Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Where Does Water Go*, it was written as follows:
 
 **
 Please note that this world, where physical laws have partially collapsed, could be fatal to us.
 
-I do not wish to repeat that joke again—a Tawaya arthropod consciousness swarm of 3 (unit garbled) charging at a single pan-sapient biological individual, only to be utterly annihilated within approximately six standard seconds by an iron-based meteorite 'summoned' by the target. That nightmare report about the mountain suddenly changing its mind and deciding to turn over after the expedition survey ended has probably already spread throughout the Confederation. I will place these records in the appendix for your perusal. If you wish to read more, please refer to the latest edition of *Encyclopedia of Mysterious Space* published by the City of Gates Editorial Department.
+I do not wish to repeat that joke again—a Tawaya arthropod consciousness swarm of 3 (unit garbled) individuals charges at a single pan-sapient biological individual, only to be utterly annihilated within approximately six standard seconds by an iron-based meteorite 'summoned' by the target. That nightmare report about the mountain suddenly changing its mind and deciding to flip over after the expedition survey ended has probably already spread throughout the Confederation. I will place these records in the appendix for your perusal. If you wish to read more, please refer to the latest edition of *Encyclopedia of Mysterious Space* published by the City of Gates Editorial Department.
 
 Any friend, as long as you still belong to a Class I civilization (a Rational civilization), you must confront this entire world of the Testamental species with the greatest, the greatest, the greatest vigilance. Even if the residents there appear similar in appearance to us. Even if the local climate seems quite similar. Even if they appear very backward, ignorant, arrogant, and narrow-minded.
 
@@ -2116,11 +2116,11 @@ Luo Binhan, having seen the end of the article, took a few deep breaths. Feeling
 **
 Concerning Exploration:
 
-We do not recommend that any Class I civilization use locally developed vessels for exploration of any degree into Class II civilization zones, also known as Testamental regions. A safer choice is to purchase a 'magic ship' from the City of Gates (the Capital of Ten Thousand Doors) via the Confederation's fast channel, and hire corresponding operators and guides. An even safer choice is to purchase a modification service, which requires your civilization to have the ability to cross stellar layers and perform superluminal long-distance navigation.
+We do not recommend that any Class I civilization use locally developed vessels for exploration of any degree into Class II civilization zones, also known as Testamental regions. A safer choice is to purchase a 'magic ship' from the City of Gates (the Capital of Ten Thousand Doors) via the Confederation's express way, and hire corresponding operators and guides. An even safer choice is to purchase a modification service, which requires your civilization to have the ability to indendently cross stellar layers and perform long-distance FTL traveling.
 
-We do not recommend that any civilization or race lacking superluminal navigation technology explore Testamental regions. This may cause contagious, incurable diseases to spread in reverse to your actual control zones. This could be fatal.
+We do not recommend that any civilization or race lacking FTL navigation technology explore Testamental regions. This may cause contagious, incurable diseases to spread back to your actual control zones. This could be fatal.
 
-We do not recommend the use of any 'spirit field manipulation', 'AAether regulation', 'Pyros shifting', or 'supernatural index stabilization' technology in open Testamental regions with unexplored borders. This may cause compensation** surge phenomena with no clear pattern to date. This could be fatal.
+We do not recommend the use of any 'Aether field manipulation', 'Aether regulation', 'Pyros shifting', or 'Supernatural index stabilization' technology in open Testamental regions with unexplored borders. This may cause compensational tidal surge phenomena with no clear pattern to date. This could be fatal.
 
 We do not recommend that any vessel that legally or socially 'belongs' to your own civilization (if private property concepts exist in your society) be used for exploration. Negative memetic phenomena that have not yet been fully characterized may propagate through such social relationships. This could be fatal.
 **
@@ -2129,7 +2129,7 @@ Concerning Vessels:
 
 A 'magic ship' is often considered a primitive device, sometimes even resembling a real ship that sails on large water bodies relying on density differences. It is at least equipped with a propulsion device. The most easily obtainable propulsion device in the City of Gates is called the 'Magic Helm', whose structure and function cannot be fully analyzed.
 
-Along with the magic ship, the personnel you hire can provide power by making physical contact with the Magic Helm. The ship's speed depends on the surrounding spirit field concentration.
+Along with the magic ship, the personnel you hire can provide power by making physical contact with the Magic Helm. The ship's speed depends on the surrounding aether field concentration.
 
 When a magic ship sails in Testamental regions, it generates artificial gravity. There will be a plane horizontally crossing the ship, with gravity pointing toward both sides of this plane. Objects that fall through the gravity plane will oscillate back and forth around it. Objects thrown 'outside' the ship will be affected by the ship's artificial gravity and orbit around it. For empirical formulas concerning such phenomena, please refer to the appendix.
 
