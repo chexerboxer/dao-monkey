@@ -2557,7 +2557,9 @@ He came around from behind Jing Huang to face them and performed a complex salut
 
 Jing Huang's left arm suddenly jerked violently, the back of his hand striking the bubble's surface. Luo Binhan watched helplessly as Keoli, mid-sentence, flew away. He soared over the railing and was flung far into the sea of fire.
 
-"Damn," Luo Binhan said, "Your fucking arm is like the Qilin Arm."
+"Damn," Luo Binhan said, "Your fucking arm is like the Qilin Arm.*"
+
+(T.N. Qilin is a mythical creature in Chinese folklore. When you have an arm that's stronger than the other for whatever reason, you can refer to it as a Qilin Arm.)
 
 Jing Huang extended his right hand and pointed vaguely at the sea. The bubble containing Keoli floated back in front of them.
 
