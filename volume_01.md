@@ -870,7 +870,7 @@ Luo Binhan stared at these titles for a while, then vigorously rubbed his head.
 
 He moved his gaze to the top shelf. The books there looked thinner and more plain, like the medical journals Zhou Yu subscribed to monthly.
 
-The first five book titles were: *Xunqu*, *Jingwei*, *Starlight Realm*, *Where Does Water Go*, *Famous Ships Appreciation*.
+The first five book titles were: *Xunqu*, *Jingwei*, *Starlight Realm*, *Where Does Water Flow*, *Famous Ships Appreciation*.
 
 Luo Binhan didn't know what these books were about, but at least their titles were simplistically moving. He picked up *Xunqu*, the closest one.
 
@@ -1671,7 +1671,7 @@ Luo Binhan glared at him darkly.
 
 "What?" Jing Huang said. "Isn't a ship meant for sailing the sea?"
 
-He grumpily grabbed the book "Where Does Water Go" from the shelf, opened the cover, and threw it at Luo Binhan. The pages quickly condensed into Chinese before his eyes.
+He grumpily grabbed the book "Where Does Water Flow" from the shelf, opened the cover, and threw it at Luo Binhan. The pages quickly condensed into Chinese before his eyes.
 
 "Ah, but a person's vision should exceed their ability," the book began. "Otherwise, why have heaven?"
 
@@ -2097,7 +2097,7 @@ On the promenade, the swarm of silver flying machines began to emit piercing noi
 
 Chapter 18: Sailing in the Dream of Blazing Fire (Part 3)
 
-Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Where Does Water Go*, it was written as follows:
+Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Where Does Water Flow*, it was written as follows:
 
 **
 Please note that this world, where physical laws have partially collapsed, could be fatal to us.
@@ -2162,9 +2162,9 @@ It took Luo Binhan quite a while to realize ∈ was gone. He asked Momoro and le
 
 "Now Mr. Jing Huang is steering the ship," Momoro replied.
 
-He didn't explain further, which left Luo Binhan deeply puzzled. He really couldn't see how Jing Huang was steering the ship. Momoro thus suggested he consult *Travelling on Water*—reportedly a beginner's guide to sailing on the Testamental side. But after skimming the first few chapters, Luo Binhan didn't feel he had learned anything. He only sensed that he was in a great chaos, both novel and infuriating. To relieve his feelings, he put down the book and slipped up to the deck.
+He didn't explain further, which left Luo Binhan deeply puzzled. He really couldn't see how Jing Huang was steering the ship. Momoro thus suggested he consult *Where Does Water Flow*—reportedly a beginner's guide to sailing on the Testamental side. But after skimming the first few chapters, Luo Binhan didn't feel he had learned anything. He only sensed that he was in a great chaos, both novel and infuriating. To relieve his feelings, he put down the book and slipped up to the deck.
 
-The deck, as an important component of the hull, was paved with millennium ghost wood, thus presenting a dark background, achieving perfect luster after repeated coatings with spirit lacquer made from sinner fat. It was both waterproof and fireproof. On nights when the light of negative celestial bodies shone upon the sea, ghost fires occasionally danced on the deck—the resentful spirits trapped within the wood venting their madness and anger. Yet even so, they could not be liberated, suffering in eternal silence.
+The deck, as an important component of the hull, was paved with millennium ghost wood, thus presenting a dark background, achieving perfect luster after repeated coatings with spirit lacquer made from sinner fat. It was both waterproof and fireproof. On nights when the light of celestial bodies shone upon the sea, ghost fires occasionally danced on the deck—the resentful spirits trapped within the wood venting their madness and anger. Yet even so, they could not be liberated, suffering in eternal silence.
 
 This was what Luo Binhan read about *The Silent* in *Famous Ships Appreciation: The Sinner Ship (Pirate Edition)*. When his feet stepped onto the deck, he inevitably recalled the above text, which was indeed a bit nauseating to him, but Momoro reassured him that the book contained many errors.
 
@@ -2182,7 +2182,7 @@ Chapter 19 The Era Turns Back (Part One)
 
 Jing Huang looked up at the sky.
 
-The sky—the vast, empty outer space, as described in the Rational universe—appeared dark and smooth on this Pyros sea, like a giant mirror. It seemed to press down low, and indeed it did; if one spread wings and flew high, within ten-odd minutes one could touch that smooth, cold plane—the true "sky veil." If one forced a passage, behind the mirror lay an endless sea of fire; exploring upward through the fire would eventually return to the starting point. This stellar layer was astonishingly narrow in the dimension of sky height.
+The sky—the vast, empty outer space, as described in the Rational universe—appeared dark and smooth on this Pyros sea, like a giant mirror. It seemed to press down low, and indeed it did; if one spread wings and flew high, within ten minutes one could touch that smooth, cold plane—the true "sky veil." If one forced a passage, behind the mirror lay an endless sea of fire; exploring upward through the fire would eventually return to the starting point. This stellar layer was astonishingly narrow in the dimension of sky height.
 
 Yet, very interestingly, stars still shone on that nearly thicknessless sky veil. They drifted freely across the veil's surface, darting about like living creatures. Jing Huang watched them for a long time and gradually realized they were chasing the psychic undercurrents within the Pyros tide. But was it some kind of mission or just a game? He pondered this for a long time but could not figure it out.
 
@@ -2194,9 +2194,9 @@ They came to the bow, lingering and watching in groups, circling around him.
 
 "More brilliant than flame," said another.
 
-"More resplendent than stars," added another.
+"More splendid than stars," added another.
 
-"Like a dream-burning fire." "Like a fire-made star." "Like a star-woven dream."
+"Like a dream-burning fire." "Like a fire-forged star." "Like a star-woven dream."
 
 "Piss off." Jing Huang said expressionlessly.
 
@@ -2230,7 +2230,7 @@ Aralega fiddled with the fine metal chain on her horn. "You, human," she said su
 
 "He likes hitting people more," Luo Binhan corrected. But in the end, he carried the jar of odds and ends over.
 
-When he put the jar next the stove, he sat down. Jing Huang glanced at him listlessly, neither objecting nor welcoming, just continuing to stare blankly at the sky. Luo Binhan glanced at the clay pot on the stove and saw that the water seemed endless, but the ingredients were almost gone.
+When he put the jar next to the stove, he sat down. Jing Huang glanced at him listlessly, neither objecting nor welcoming, just continuing to stare blankly at the sky. Luo Binhan glanced at the clay pot on the stove and saw that the water seemed endless, but the ingredients were almost gone.
 
 "Hey, shouldn't you add more of this stuff?" he asked Jing Huang.
 
@@ -2252,7 +2252,9 @@ Jing Huang glanced at him. "It's tea grown on an island," he said. "When heavy r
 
 "If it's disgusting, don't drink."
 
-Luo Binhan was fearless. He took a few more sips from his bowl, then unhurriedly said, "I need to tell you the story of Zhou Yu and civet cat coffee."
+Luo Binhan was fearless. He took a few more sips from his bowl, then unhurriedly said, "I need to tell you the story of Zhou Yu and civet cat* coffee."
+
+(T.N. Civet cat coffee in Chinese is litearlly called "Cat Poop coffee")
 
 He had just started telling how civet cats defecate when Momoro arrived.
 
@@ -2276,7 +2278,7 @@ Momoro thought for a while.
 
 Luo Binhan nodded in agreement: "Sounds about the same as stepping in dog poop."
 
-"Can you two talk about this shit while drinking tea?" Jing Huang said grimly. Luo Binhan had to shut up, and Momoro also lowered his head in shame.
+"Can you two not talk about this shit while drinking tea?" Jing Huang said grimly. Luo Binhan had to shut up, and Momoro also lowered his head in shame.
 
 "Indeed. During tea, one should focus on clearing the mind," he said solemnly. "So now I will tell the Ten Anecdotes of Master Sanglian! The first one says that in ancient times there was a butcher..."
 
@@ -2286,19 +2288,19 @@ A battleship-like spacecraft emerged from the hole. It was sharply streamlined, 
 
 The ship emerged from the hole, and then a loud, solemn voice came from above.
 
-"To all residents of the new world, we are the Holy Nation Navy Fleet from the Original Universe. Fear not! Today will be a brand new start in history; today will be the dawn of civilization. We shall bring true wisdom and civilization!"
+"To all denizens of the new world, we are the Holy Senlando Parallel State Navy Fleet from the Original Universe. Fear not! Today will be a brand new start in history; today will be the dawn of civilization. We shall bring true wisdom and civilization!"
 
 ## Chapter 20
 
 Chapter 20 Times Turning Back (Part 2)
 
-During the three days of drifting through a sea of fire, Luo Binhan witnessed many things. He had encountered floating mountains, flying single-eyed fish, and stars that descended to sing around people when inspired. Even so, the magnificent warship, like something out of a sci-fi movie, still shocked him.
+During the three days of drifting through a sea of fire, Luo Binhan witnessed many things. He had encountered floating mountains, flying one-eyed fish, and stars that descended to sing around people when inspired. Even so, the magnificent warship, like something out of a sci-fi movie, still shocked him.
 
 It hung high in the sky, growing more imposing as it descended. Luo Binhan estimated it was at least six or seven times the size of the Fishbone. Along the edge of its smooth, seamless base were countless gunports.
 
 A loud and solemn proclamation came from the airship.
 
-"…We grant order and civilization to tens of thousands of primitive planets; we conquer all dangerous alien creatures and viruses; we defend the supreme glory and authority of our great motherland! Now, having crossed the vast galaxy, we have arrived on this new land. We are the First Fleet of the Holy Senlando Parallel State of the original universe. Dear friends who dwell in this world, fear not! Do not be anxious! From this moment on, you are under the radiance of the Holy State, and shall together face the infinitely glorious future!"
+"…We grant order and civilization to tens of thousands of primitive planets; we conquer all dangerous alien creatures and viruses; we defend the supreme glory and authority of our great motherland! Now, having crossed the vast galaxy, we have arrived on this new land. We are the First Fleet of the Holy Senlando Parallel State of the Original Universe. Dear friends who dwell in this world, fear not! Do not be anxious! From this moment on, you are under the radiance of the Holy State, and shall together face the infinitely glorious future!"
 
 The voice repeated itself over and over, echoing long over the sea of fire.
 
@@ -2308,7 +2310,7 @@ After another moment, Momoro was the first to lower his head.
 
 "Firstly," he said gently and slowly, "in ancient times there was a butcher…"
 
-"Are you fucking never going to stop?" Jing Huang said.
+"Are you ever going to fucking stop?" Jing Huang said.
 
 He kicked Momoro, then picked up his bowl and drank his tea in sullen silence. Momoro asked, "Master Xuanhong, may I have a bowl too?"
 
@@ -2320,13 +2322,13 @@ Luo Binhan gaped upward. From the magnificent aircraft-carrier-like airship, a b
 
 "We," he said hesitantly, "have we been spotted?"
 
-The other two looked at him casually. "Ah," Jing Huang said, chewing on the tea ingredients.
+The other two looked at him casually. "Mmm," Jing Huang said, chewing on the tea ingredients.
 
 The strong light on the deck also alarmed the others; Aralega and Day Eight soon appeared before them.
 
 "Captain?" Aralega asked, looking at the airship in the sky.
 
-"Ah," Jing Huang said listlessly.
+"Mmm," Jing Huang said listlessly.
 
 "What type is it?"
 
@@ -2354,7 +2356,7 @@ Phantom Keoli smiled an understanding, subtle smile. He cast a sympathetic, almo
 
 "Of course, of course," he said, deliberately lowering his voice into a gentle tone barely containing sympathy. "I understand, I understand. For you, born on this wretched planet, the whole world is dangerous, chaotic, and unknowable. But from now on, things will be completely different… all the gods and idols you fear, revere, and worship will become things of the past. The tolerant and loving Holy State will grant you all knowledge and wisdom, fully liberating you from that primitive, ignorant cave of ignorance. From then on, you will understand that behind all that mystery and magic lie exquisite and accurate scientific principles. You will have to learn mathematics and other natural sciences from scratch, to truly know this beautiful and complex material world. Then you will realize that wizards and ghosts do not exist, and witchcraft and magic are illusions. Science! That is the true name of your god!"
 
-"Indeed, science is a remarkable tool system. Hypothesis, inference, empirical evidence, eliminating confounding factors…" Momoro said gently, holding his bowl of tea. "Before our star was destroyed, my homeland was also good at that. It has a kind of refined beauty."
+"Indeed, science is a remarkable tool system. Hypothesis, inference, empirical evidence, eliminating confounding factors…" Momoro said gently, holding his bowl of tea. "Before our stars were destroyed, my homeland was also good at that. It has a kind of refined beauty."
 
 His voice was very soft; Phantom Keoli seemed not to hear. The golden-haired, green-eyed beautiful illusion passionately spread his arms, offering them an airy embrace.
 
@@ -2366,11 +2368,11 @@ Jing Huang swallowed the last mouthful of tea from his bowl, then set the bowl d
 
 "We have that kind of brainwave activity during sleep, of course," Phantom Keoli replied. "We are highly similar to you in physiology, so most behaviors are the same. My dear alien friend, what makes us worlds apart is learning and knowledge, not bodily structure."
 
-Jing Huang looked at the sky as if not hearing. "Prometheus is an idiot," he said.
+Jing Huang looked at the sky as if not hearing. "Prometheus is brain dead," he said.
 
 Phantom Keoli looked at him uncomprehendingly.
 
-"Prometheus is an idiot," Jing Huang said. "When you fall asleep, repeat this phrase in your dreams. Once your collective consciousness reaches a certain number, the White Tower will detect that you are qualified. They will contact you through dreams and tell you the correct phasing point coordinates. Then you build another ship and go to the nearest Confederation office to register as new members and apply for technical assistance. They will assign a new zone development protection officer to teach you how to avoid Testamental-side universes during initial exploration."
+"Prometheus is brain dead," Jing Huang said. "When you fall asleep, repeat this phrase in your dreams. Once your collective consciousness reaches a certain number, the White Tower will detect that you are qualified. They will contact you through dreams and tell you the correct phasing point coordinates. Then you build another ship and go to the nearest Confederation office to register as new members and apply for technical assistance. They will assign a new territorial development protection officer to teach you how to avoid Testamental universes during initial exploration."
 
 They stared at each other.
 
@@ -2390,8 +2392,6 @@ Keoli looked at him oddly, stunned, as if hearing a cold joke. Jing Huang exhale
 
 "Your ship is blowing up," he said flatly, mercilessly.
 
-## Chapter 21
-
 ## Chapter 21: Era Suddenly Looks Back (Part 2)
 
 For a moment Luo Binhan and Keoli's phantom mirrored each other's actions. They looked at Jing Huang, then at the airship overhead, then back at Jing Huang.
@@ -2400,7 +2400,7 @@ For a moment Luo Binhan and Keoli's phantom mirrored each other's actions. They 
 
 "Your radiators," Jing Huang said. Then he pursed his lips in inexplicable irritation. Momoro took over the conversation.
 
-"Radiators are the parts most prone to damage when Rational spacecraft navigate through Pyros," he said sympathetically. "Pyros abhors physical flight. You can think of them as having enough intelligence to selectively cause damage. They prioritize destroying any rules and equipment related to temperature. Without specialized shielding, sophisticated machines lacking conceptual depth are very dangerous in the Testamental universe. Mr. Keoli, you must return to your home immediately!"
+"Radiators are the parts most prone to damage when Rational spacecraft navigate through Pyros," he said sympathetically. "Pyros abhors physical flight. You can think of them as having enough intelligence to selectively cause damage. They prioritize destroying any laws and equipment related to temperature. Without specialized shielding, sophisticated machines lacking conceptual depth are very dangerous in the Testamental universe. Mr. Keoli, you must return to your home immediately!"
 
 Keoli stammered, "But our radiators are perfectly designed. They can't break during normal flight!"
 
@@ -2436,17 +2436,17 @@ Then the explosion happened.
 
 Blue-violet flames spread from the center of the airship's base toward the edges. The sight was strange and magnificent, like a gorgeous peony slowly blooming.
 
-At the canopy of the Pyros sea, the starry sky glittered, falling straight down toward that gorgeous flower, circling around the flame blossom. The starlight danced so lightly that Luo Binhan thought of laughing crowds holding hands and singing around a campfire. His throat felt dry, his insides churned, and the tea he'd drunk seemed useless.
+At the canopy of the Pyros sea, the starry sky glittered, falling straight down toward that gorgeous flower, circling around the flame blossom. The starlight danced so lightly that Luo Binhan thought of a laughing crowds holding hands and singing around a campfire. His throat felt dry, his insides churned, and the tea he'd drunk seemed useless.
 
 The raging fire flower completely swallowed the airship. Then the stars in the sky began to dance and sing. Their melodious song echoed throughout the sea of fire.
 
 "Birdie, birdie, steel-made birdie,
 Flying in the dreams of stars.
-It heads toward the sun's flame,
+It heads toward the sun's golden flame,
 Melting its feathers in the sky!
 Birdie, birdie, cold, cold birdie,
 Falling into the eyes of stars.
-It heads toward the sun's fingers,
+It heads toward the sun's reaching hands,
 Burning its plumes into the sky!"
 
 Luo Binhan stood there dazed, listening. After a few seconds, he reached into his inner pocket and pulled out that pale red lens. First he pressed the green "Animal" button, but saw nothing. Then, as if possessed, he pressed the yellow "Element" button.
@@ -2457,7 +2457,7 @@ Behind the lens, the starlight turned golden. Lines of text appeared in the lens
 
 He lowered the lens, trembling involuntarily.
 
-"Idiot," Jing Huang next to him said.
+"Brain dead," Jing Huang next to him said.
 
 Before Luo Binhan could figure out who he was swearing at, Jing Huang, with a stern face, flew up from the deck. It was a strange sight—he didn't grow wings, but was lifted by a faint cloud of fire beneath his feet, like an elevator heading straight to the heavens.
 
@@ -2465,15 +2465,15 @@ He rushed straight into the blue-violet flames, disappearing like an ant swallow
 
 "It's okay, it's okay, Mr. Luo," Momoro said, patting his shoulder reassuringly. "Don't panic, don't worry. Just consider it a new era."
 
-Luo Binhan calmed down a bit. He stared at Momoro gloomily: "New captain era?"
+Luo Binhan calmed down a bit. He stared at Momoro gloomily: "The era of a new captain?"
 
 "No," Momoro said. "Every day a star dies, every day a star is born. Every day is a new era. That is the eternal dream of the universe."
 
-Luo Binhan felt a headache. He solemnly took Momoro's hand: "When you talk, just talk—no fucking singing."
+Luo Binhan felt a headache. He solemnly took Momoro's hand: "When you talk, just talk—please don't fucking sing."
 
 Momoro looked at him with concern and sincerity: "You need to drink more hot water."
 
-Luo Binhan wanted to tell him to fuck off, but then the sky brightened. The first light of dawn fell on the deck of The Silent, startling Luo Binhan as he looked up.
+Luo Binhan wanted to tell him to get away from him, but then the sky brightened. The first light of dawn fell on the deck of The Silent, startling Luo Binhan as he looked up.
 
 The pitch-black, mirror-smooth sky began to glow, presenting the illusion of a rising sun. Ten thousand rays of dawn, orange-red like fire, blazed across the sky, and the dancing stars instantly scattered in flight.
 
@@ -2510,8 +2510,6 @@ Its parts flew everywhere with flames, turning into pale ash before falling into
 The entire airship was gone. The only things falling on The Silent's deck were tiny points of emerald light, drifting eerily like ghostly flames. But when they happened to land on Luo Binhan, he felt no heat, nor did he hear any wailing of spirits.
 
 They were just a few small, harmless fireflies.
-
-## Chapter 22
 
 ## Chapter 22: The Vast Firmament Falls Within the Palm (Part 1)
 
@@ -2577,7 +2575,7 @@ Luo Binhan was impressed by his sudden brevity and poked his back: "That's prett
 
 "Annoying," Jing Huang mumbled.
 
-Keoli didn't mind the host's attitude. He pleaded, "The Divine Kingdom thanks you for your generous aid, my dear alien friend. I am filled with fear and confusion toward this sea, but please, first rescue the people who were stranded with me. Among them are eight hundred and sixty-three imperial soldiers who have shared life and death with me, one hundred and ninety-two of the empire's finest scientists and technical experts, and one hundred and forty-four innocent ordinary citizens who voluntarily came to this strange world to start new lives. As a proud officer of the Holy Empire's navy, I have a duty to protect their safety by all possible means."
+Keoli didn't mind the host's attitude. He pleaded, "The Holy State thanks you for your generous aid, my dear alien friend. I am filled with fear and confusion toward this sea, but please, first rescue the people who were stranded with me. Among them are eight hundred and sixty-three imperial soldiers who have shared life and death with me, one hundred and ninety-two of the empire's finest scientists and technical experts, and one hundred and forty-four innocent ordinary citizens who voluntarily came to this strange world to start new lives. As a proud officer of the Holy State Navy, I have a duty to protect their safety by all possible means."
 
 "None of my fucking business," Jing Huang said immediately.
 
@@ -2699,7 +2697,7 @@ Even Luo Binhan became interested in this topic. He sat up straight, and Keoli b
 
 "Can I see one?" Keoli asked eagerly. "How big is it? What does it look like? God, will there be elves and beast kings inside? When I was a child, I always fantasized about riding a crested lizard across the battlefield with elves! Brandishing a magical trident forged by beast kings! Can I bring one back as a souvenir?"
 
-Luo Binhan twisted his body uncomfortably. He thought either Aralega hadn't installed the language pack properly, or the popular culture of the Divine Serenland Parallel Kingdom was a bit too similar to his hometown's. For a civilization capable of crossing universes, that was really sad. Besides, he preferred the yokai genre.
+Luo Binhan twisted his body uncomfortably. He thought either Aralega hadn't installed the language pack properly, or the popular culture of the Holy Senlando Parallel State was a bit too similar to his hometown's. For a civilization capable of crossing universes, that was really sad. Besides, he preferred the yokai genre.
 
 Momoro seemed a bit troubled as he looked at the two of them.
 
@@ -2753,7 +2751,7 @@ Luo Binhan sighed and said leisurely, "The forest of loneliness."
 
 Keoli stood up nervously from his seat. He seemed unsure how to treat Jing Huang, but after a moment's confusion, he still saluted.
 
-"Thank you again for your aid, Mr. Xuanhong," he said, apparently having learned the title from Momoro. "The Holy Nation will remember everything you've done. We hope to repay you in the future."
+"Thank you again for your aid, Mr. Xuanhong," he said, apparently having learned the title from Momoro. "The Holy State will remember everything you've done. We hope to repay you in the future."
 
 "Go away, stop bothering me," Jing Huang said sullenly. His left arm was hanging limp at the moment, and he seemed even more listless.
 
@@ -3041,7 +3039,7 @@ The man had a tangled and frizzy brown hair, tied very crudely behind his head i
 
 Luo Binhan realized they didn't share a language. He placed his hopes on the others, only to find Keoli also looking puzzled.
 
-"Oh," he cleared his throat and said, "Greetings, local inhabitants. Do not panic. We are soldiers from the primordial... from the Holy Sylvan Multilateral Nation's First Fleet. We encountered an accident during our voyage."
+"Oh," he cleared his throat and said, "Greetings, local inhabitants. Do not panic. We are soldiers from the primordial... from the Holy Senlando Parallel State's First Fleet. We encountered an accident during our voyage."
 
 The hunter's eyebrows knitted together, and he scratched his head in confusion. He clearly didn't understand Keoli's language either, but his demeanor showed no hostility. He clenched his left fist, pounded his chest twice, and said, "Ooh! Ooh!"
 
