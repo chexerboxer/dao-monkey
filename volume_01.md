@@ -2005,7 +2005,7 @@ Luo Binhan felt both incredulous and somehow expected. He looked up at the giant
 
 The smile vanished from the giant's face immediately, and even the eyes that shone like searchlights dimmed a little.
 
-"Really? ... The seniors at school said my appearance was very easy for pan-sapiens to accept," Momoro said dejectedly in his mind. "Does Mr. Luo think it's terrible?"
+"Really? ... The seniors at school said my appearance was very easy for pan-sapiens to accept," Momoro said dejectedly in his mind. "Does Mr. Luo think it looks terrible?"
 
 Luo Binhan felt a pang of guilt.
 
@@ -2027,7 +2027,7 @@ The silver giant didn't care about his rude attitude at all. It extended hands w
 
 Luo Binhan strained his eyes to the utmost. He found that the material of the suspended plate was indeed similar to the Silent's hull he had seen before.
 
-"So it can be removed!" he shouted, shaking Jing Huang's shoulders.
+"So it can be removed!?" he shouted, shaking Jing Huang's shoulders.
 
 "It always could," Jing Huang rolled his eyes at him. "If the shell isn't stored in the spirit field zone, it's easily damaged."
 
@@ -2043,7 +2043,7 @@ The silver giant held the huge suspended plate with both hands, as if holding a 
 
 The pitch-black plate grew smaller and smaller in the giant's hands, finally becoming about a fifth of its original size. The giant lifted the ship with one hand and carefully attached the folded metal plate to the bottom of the ship. Its movements were extremely slow, but Luo Binhan, lifted along with the ship, was still pressed to the deck by the wind.
 
-"Hey, watch it, your fucking—" Jing Huang, sitting cross-legged on the deck, looked up. "The repair costs from last time aren't even paid off. If you smash something else, will you pay for it?"
+"Hey, watch it, your fucking—" Jing Huang, sitting cross-legged on the deck, looked up. "The repair costs from last time aren't even paid off. If you smash something else you are paying for it!"
 
 The silver giant's shoulders slumped, which looked like a mountain collapsing from Luo Binhan's elevated position. This heart-pounding torment lasted several minutes before the giant set the ship back in place.
 
@@ -2065,11 +2065,11 @@ Luo Binhan looked up at the silver giant, whose features were as friendly as a t
 
 "Yeah."
 
-"I thought you only did dark dealings?"
+"I thought you only commit crimes against outlaws?"
 
 Jing Huang rested his head on the railing irritably, his gaze drifting toward the deep, clear sky.
 
-"Going through the process is too annoying," he said sulkily.
+"Filling out paper work is too annoying," he said sulkily.
 
 "You're giving up on yourself!"
 
@@ -2079,11 +2079,11 @@ Luo Binhan yelled. Immediately, the entire ship shook violently. He hugged the r
 
 A gentle voice answered in his heart: "Going out to sea, Mr. Luo. If we don't go now, the security will mobilize."
 
-"And going out to sea means being carried by you?"
+"And sailing out means being carried by you?"
 
-"Because Mr. Jing Huang doesn't have a permit. Forging one and then using a crane to leave port would take too long," the giant patiently explained. "No problem, Mr. Luo. Mr. Jing Huang does this often. Just trust him."
+"Because Mr. Jing Huang doesn't have a permit. Forging one and then using a crane to leave port would take too long," the giant patiently explained. "It's fine, Mr. Luo. Mr. Jing Huang does this often. Just trust him."
 
-"Bullshit!" Luo Binhan said. "Don't shirk responsibility. I can see your ship-loading skills now. In the future, you'll be eating prison food for sure!"
+"Bullshit!" Luo Binhan said. "Don't shirk responsibility.. In the future, you'll be eating prison food for sure!"
 
 The giant seemed not to hear. Somehow, its two huge, lightbulb-like eyes emitted a harmless, saintly glow. Meanwhile, it continued striding along the sea, churning up furious waves.
 
@@ -2097,14 +2097,14 @@ On the promenade, the swarm of silver flying machines began to emit piercing noi
 
 Chapter 18: Sailing in the Dream of Blazing Fire (Part 3)
 
-Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Travelling on Water*, it was written as follows:
+Concerning the latter half of the prologue of the book that Jing Huang once threw at Luo Binhan, *Where Does Water Go*, it was written as follows:
 
 **
 Please note that this world, where physical laws have partially collapsed, could be fatal to us.
 
-I do not wish to repeat that joke again—a Tawaya arthropod consciousness swarm of 3 (unit garbled) charging at a single pan-sapient biological individual, only to be utterly annihilated within approximately six standard seconds by an iron-based meteorite 'summoned' by the target. That nightmare report about the mountain suddenly changing its mind and deciding to turn over after the expedition survey ended has probably already spread throughout the Confederation. I will place these records in the appendix for your perusal. If you wish to read more, please refer to the latest edition of *Encyclopedia of Mysterious Space* published by the City of Gates Editorial Department.
+I do not wish to repeat that joke again—a Tawaya arthropod consciousness swarm of 3 (unit garbled) charged at a single pan-sapient individual, only to be utterly annihilated within approximately six standard seconds by an iron-based meteorite 'summoned' by the target. That nightmare report about the mountain suddenly deciding to turn over after the expedition survey ended has probably already spread throughout the Confederation. I will place these records in the appendix for your perusal. If you wish to read more, please refer to the latest edition of *Encyclopedia of Mysterious Space* published by the City of Gates Editorial Department.
 
-Any friend, as long as you still belong to a Class I civilization (a Rational civilization), you must confront this entire world of the Testamental species with the greatest, the greatest, the greatest vigilance. Even if the residents there appear similar in appearance to us. Even if the local climate seems quite similar. Even if they appear very backward, ignorant, arrogant, and narrow-minded.
+My friend, as long as you still belong to a Class I civilization (a Rational civilization), you must confront this entire world of the Testamental species with the greatest, the greatest, the greatest vigilance. Even if the residents there appear similar in appearance to us. Even if the local climate seems quite similar. Even if they appear very backward, ignorant, arrogant, and narrow-minded.
 
 Remember, it is not our homeland.
 
@@ -2116,20 +2116,20 @@ Luo Binhan, having seen the end of the article, took a few deep breaths. Feeling
 **
 Concerning Exploration:
 
-We do not recommend that any Class I civilization use locally developed vessels for exploration of any degree into Class II civilization zones, also known as Testamental regions. A safer choice is to purchase a 'magic ship' from the City of Gates (the Capital of Ten Thousand Doors) via the Confederation's fast channel, and hire corresponding operators and guides. An even safer choice is to purchase a modification service, which requires your civilization to have the ability to cross stellar layers and perform superluminal long-distance navigation.
+We do not recommend that any Class I civilization use locally developed vessels for exploration of any degree into Class II civilization regions, also known as Testamental regions. A safer choice is to purchase a 'magic ship' from the City of Gates (the City of a Thousand Gates and Ten Thousand Doors) via the Confederation's fast channel, and hire corresponding operators and guides. An even safer choice is to purchase a modification service, which requires your civilization to have the ability to cross stellar layers and perform long-distance FTL navigation.
 
-We do not recommend that any civilization or race lacking superluminal navigation technology explore Testamental regions. This may cause contagious, incurable diseases to spread in reverse to your actual control zones. This could be fatal.
+We do not recommend that any civilization or race lacking FTL navigation technology explore Testamental regions. This may cause contagious, incurable diseases to spread back to your actual control zones. This could be fatal.
 
-We do not recommend the use of any 'spirit field manipulation', 'AAether regulation', 'Pyros shifting', or 'supernatural index stabilization' technology in open Testamental regions with unexplored borders. This may cause compensation** surge phenomena with no clear pattern to date. This could be fatal.
+We do not recommend the use of any 'spirit field manipulation', 'Aether regulation', 'Pyros shifting', or 'supernatural index stabilization' technology in open Testamental regions with unexplored borders. This may cause a phenomenon known as compensational tidal surge to occur, which still know very little about today. This could be fatal.
 
-We do not recommend that any vessel that legally or socially 'belongs' to your own civilization (if private property concepts exist in your society) be used for exploration. Negative memetic phenomena that have not yet been fully characterized may propagate through such social relationships. This could be fatal.
+We do not recommend that any vessel that legally or socially 'belongs' to your own civilization (if the concept of private property exist in your society) be used for exploration. Negative memetic phenomena that have not yet been fully characterized may propagate through such social relationships. This could be fatal.
 **
 
 Concerning Vessels:
 
 A 'magic ship' is often considered a primitive device, sometimes even resembling a real ship that sails on large water bodies relying on density differences. It is at least equipped with a propulsion device. The most easily obtainable propulsion device in the City of Gates is called the 'Magic Helm', whose structure and function cannot be fully analyzed.
 
-Along with the magic ship, the personnel you hire can provide power by making physical contact with the Magic Helm. The ship's speed depends on the surrounding spirit field concentration.
+Along with the magic ship, the personnel you hire can provide power by making physical contact with the Magic Helm. The ship's speed depends on the concentration of surrounding spirit field.
 
 When a magic ship sails in Testamental regions, it generates artificial gravity. There will be a plane horizontally crossing the ship, with gravity pointing toward both sides of this plane. Objects that fall through the gravity plane will oscillate back and forth around it. Objects thrown 'outside' the ship will be affected by the ship's artificial gravity and orbit around it. For empirical formulas concerning such phenomena, please refer to the appendix.
 
@@ -2146,23 +2146,23 @@ Luo Binhan naturally declined. Those flying insects—what Momoro called Flame S
 
 Even so, they were indeed relatively harmless, especially compared to the other creatures they encountered during the voyage. Two days earlier, they had passed a small floating mountain peak in the air, carved into the shape of a bearded human head, from which hundreds of one-eyed flying fish emerged. Their heads were huge, with exaggeratedly large mouths that, when opened, clearly revealed the throat inside.
 
-Momoro told him that this type of fish was common in high-concentration Pyros regions. They usually just chased passing ships, looking for feces or carrion to eat. But when their numbers were too large, the situation was quite different.
+Momoro told him that this type of fish was common in high-concentration Pyros regions. They usually just chased passing ships, looking for feces or carrion to eat. But when their numbers are large, the situation becomes quite different.
 
 "They are opportunists," Momoro said seriously. "The small gray fish are relatively safe, but if you see other colors, Mr. Luo, you must be careful."
 
 Indeed, among the fish swarm, there were types with brown spots or white patterns, and the latter were large enough to fit two or three adults. Luo Binhan had no idea how *The Silent* finally escaped them, because as soon as the fish appeared, Jing Huang drove him back to the bottom of the ship.
 
-Now he sat in that familiar round hall. Most things looked no different from the earliest times. But two things had vanished: first, the river-of-stars illusion at the center of the floor; second, ∈.
+Now he sat in that familiar round hall. Most things looked no different from the earliest times. But two things had vanished: first, the projection of a galaxy at the center of the floor; second, ∈.
 
 It took Luo Binhan quite a while to realize ∈ was gone. He asked Momoro and learned it was a normal phenomenon.
 
-"It's a safety measure," Momoro said. "Mr. ∈ is at risk of contamination in the unprotected outer seas of the Testamental, so we temporarily stopped the mainframe."
+"It's a safety measure," Momoro said. "Mr. ∈ is at risk of contamination in the unprotected outer seas of the Testamental regions, so we temporarily turned off the mainframe."
 
 "Doesn't he need to steer the ship?"
 
 "Now Mr. Jing Huang is steering the ship," Momoro replied.
 
-He didn't explain further, which left Luo Binhan deeply puzzled. He really couldn't see how Jing Huang was steering the ship. Momoro thus suggested he consult *Travelling on Water*—reportedly a beginner's guide to sailing on the Testamental side. But after skimming the first few chapters, Luo Binhan didn't feel he had learned anything. He only sensed that he was in a great chaos, both novel and infuriating. To relieve his feelings, he put down the book and slipped up to the deck.
+He didn't explain further, which left Luo Binhan deeply puzzled. He really couldn't see how Jing Huang was steering the ship. Momoro thus suggested he consult *Where Does Water Go*—reportedly a beginner's guide to sailing on the Testamental side. But after skimming the first few chapters, Luo Binhan didn't feel he had learned anything. He only sensed that he was in a great chaos, both novel and infuriating. To relieve his feelings, he put down the book and slipped up to the deck.
 
 The deck, as an important component of the hull, was paved with millennium ghost wood, thus presenting a dark background, achieving perfect luster after repeated coatings with spirit lacquer made from sinner fat. It was both waterproof and fireproof. On nights when the light of negative celestial bodies shone upon the sea, ghost fires occasionally danced on the deck—the resentful spirits trapped within the wood venting their madness and anger. Yet even so, they could not be liberated, suffering in eternal silence.
 
@@ -3631,7 +3631,7 @@ The jade knife's sound never ceased. The void spread in the moon's shadow, event
 —Walking the long road alone, singing of home to comfort the heart.
 The void expanded to the lake shore, and the entire water surface looked like a huge mirror of the starry sky. The black jade knife began to shrink. It spun in place a few times, then burrowed back into Jing Huang's collar.
 
-Jing Huang landed back on the shore. WhAether it was an illusion caused by the moonlight, Luo Binhan felt his expression was a bit unpleasant.
+Jing Huang landed back on the shore. Whether it was an illusion caused by the moonlight, Luo Binhan felt his expression was a bit unpleasant.
 
 "Go," he said to Keoli. "The door is in the lake."
 
@@ -3673,7 +3673,7 @@ Keoli looked at him puzzled. Jing Huang threw away the grass stalk in his hand, 
 
 Colored flames leaped in his pupils. Jing Huang stepped back under the moon.
 
-"No matter," he said coldly. "WhAether you are the remnants of a previous era's destruction or experimental subjects raised by a higher civilization, your fate is predetermined. This matter is none of my concern."
+"No matter," he said coldly. "Whether you are the remnants of a previous era's destruction or experimental subjects raised by a higher civilization, your fate is predetermined. This matter is none of my concern."
 
 His voice was as crisp and cold as ice shattering jade.
 
@@ -4351,7 +4351,7 @@ Luo Binhan followed Jing Huang's gaze upward. The night sky was traversed by a b
 
 He didn't say it, but the silver-haired girl was already shaking her head.
 
-"No, no, you've got it wrong," she said. "Stellar elements hold a different view on the definition of life. In their eyes, that is not a single life, but a collection of countless lives, the sum of their wills. When that ship disintegrates, it means the countless lives composing it gain freedom and liberation—but that's not the point. That star band is not made of stellar elements; it simply exists naturally. WhAether in your homeland, here, or in any stellar layer touched by the Confederation, you can see it."
+"No, no, you've got it wrong," she said. "Stellar elements hold a different view on the definition of life. In their eyes, that is not a single life, but a collection of countless lives, the sum of their wills. When that ship disintegrates, it means the countless lives composing it gain freedom and liberation—but that's not the point. That star band is not made of stellar elements; it simply exists naturally. Whether in your homeland, here, or in any stellar layer touched by the Confederation, you can see it."
 
 Luo Binhan was already dizzy.
 
@@ -4509,7 +4509,7 @@ Luo Binhan raised his hand weakly: "Can you beat it, young master? Don't flood C
 
 Jing Huang swung his arms and walked toward the cabin exit, when a silvery-white jellyfish floated in from outside.
 
-"I apologize for the accident just now," it said in an Aethereal voice. "It seems that wasn't a good time to turn over."
+"I apologize for the accident just now," it said in an ethereal voice. "It seems that wasn't a good time to turn over."
 
 "You fucking did it on purpose, didn't you?"
 
