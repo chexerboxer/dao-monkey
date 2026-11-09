@@ -2206,7 +2206,9 @@ After beating away the jellyfish, Jing Huang sat back down at the bow, picked up
 
 Luo Binhan had never thought deeply about this issue before, but at this moment, when he realized that Jing Huang had been sitting in the same spot at the bow for three days, he finally began to suspect that the kid didn't need to use the bathroom at all.
 
-Just then, Aralega walked up beside him. She was holding a jar the size of a Go box, stuffed with a mixture of tea leaves and other tea ingredients.
+Just then, Aralega walked up beside him. She was holding a jar the size of a Go box*, stuffed with a mixture of tea leaves and other tea ingredients.
+
+(T.N. For the game Go)
 
 "Are you okay?" she asked Luo Binhan.
 
@@ -2216,7 +2218,7 @@ Aralega stared at him for a while, then said, "You're looking at the captain."
 
 "Yeah," Luo Binhan said, "I came out and saw him beating up pixies."
 
-Aralega ignored this. She concluded on her own, "You are friends."
+Aralega ignored this. She concluded on her own, "You're friends."
 
 Luo Binhan didn't disagree with that, though it seemed a bit strange coming from a woman with goat horns.
 
@@ -2228,7 +2230,7 @@ Luo Binhan didn't disagree with that either, though he thought it was unwise to 
 
 Aralega fiddled with the fine metal chain on her horn. "You, human," she said succinctly. "He likes humans."
 
-"He likes hitting people more," Luo Binhan corrected. But in the end, he carried the jar of odds and ends over.
+"He likes hitting people more," Luo Binhan corrected. But in the end, he carried the jar and ends over.
 
 When he put the jar next to the stove, he sat down. Jing Huang glanced at him listlessly, neither objecting nor welcoming, just continuing to stare blankly at the sky. Luo Binhan glanced at the clay pot on the stove and saw that the water seemed endless, but the ingredients were almost gone.
 
